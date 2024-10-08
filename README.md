@@ -1,0 +1,1 @@
+hi this figma is shown about smart design
